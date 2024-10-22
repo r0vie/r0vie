@@ -16,7 +16,7 @@
      She/her!
   
 - ⚡ Fun fact...
-    Idk actually
+    (There isn't any, actually)
 
 <!---
 r0vie/r0vie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
